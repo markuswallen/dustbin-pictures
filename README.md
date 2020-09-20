@@ -1,3 +1,3 @@
 ## Welcome to Dustbin Pictures
 
-Go to our YouTube channel to see our movies: (ttps://www.youtube.com/user/DustbinPictures
+Go to our [YouTube channel](https://www.youtube.com/user/DustbinPictures) to see our movies.
